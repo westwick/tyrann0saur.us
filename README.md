@@ -1,1 +1,1 @@
-# tyrann0saur.us
+# homepage for tyrann0saur digital
